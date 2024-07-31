@@ -1,0 +1,3 @@
+This is a Virtual card by CloudyCord, an Virtual account now many people will think this is just a Virtual credit card but it's actually a Virtual account. This account is webhook based and non-custom meaning no customizations can be added to the account. Virtual account is in 2 ways, one is Virtual Card and another is QR. Go to CloudyCord's main page and talk to them and ask them for CloudyCard, and you will be promoted with some requirements after done you will be  given a image.
+
+Our VirtualCard gives instant access to our products. if this virtual card is authorized in other organisation, instant access is guaranteed. Get your CloudyCard now.
